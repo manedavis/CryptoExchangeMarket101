@@ -1,2 +1,2 @@
 # CryptoExchangeMarket101
-Trade CryptoCurrencies &amp; Digital Currencies, Exchange CryptoCurrencies and Digital Currencies, Buy Merchandise, &amp; Chat with crypto peers.
+Trade CryptoCurrencies, Alt Coins, Digital Currencies, Exchange Currencies, Alt Coins Included, Buy Merchandise, Chat with crypto peers.
